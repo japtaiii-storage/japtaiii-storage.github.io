@@ -7,6 +7,7 @@ Guarding/Protection:
 Deputy Commander within the Democratic Guard (Constitutional Democratic Party)
 Junior Guard within the Royal Guard
 Candidate within the Toter Knights Continuum
+Candidate within the Honor Guard (Royal Guard)
 
 
 Administration:
@@ -31,6 +32,5 @@ Deputy Commander within the Democratic Guard (Consitutional Democratic Party)
 
 
 Other relevant IRF experience:
-
 Ex Constable within the Ministry of Internal Affairs
 Ex Candidate of ISOC
