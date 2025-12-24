@@ -4,10 +4,10 @@ If there are any duplicates in different sections, that means that experience ap
 
 
 Guarding/Protection:
-Deputy Commander within the Democratic Guard (Constitutional Democratic Party)
-Junior Guard within the Royal Guard
-Candidate within the Toter Knights Continuum
-Candidate within the Honor Guard (Royal Guard)
+Deputy Commander within the Democratic Guard (Constitutional Democratic Party) | 
+Junior Guard within the Royal Guard | 
+Candidate within the Toter Knights Continuum | 
+Candidate within the Honor Guard (Royal Guard) | 
 
 
 Administration:
