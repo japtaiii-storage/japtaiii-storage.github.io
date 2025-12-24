@@ -31,5 +31,6 @@ Deputy Commander within the Democratic Guard (Consitutional Democratic Party)
 
 
 Other relevant IRF experience:
+
 Ex Constable within the Ministry of Internal Affairs
 Ex Candidate of ISOC
