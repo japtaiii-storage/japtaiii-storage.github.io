@@ -11,26 +11,26 @@ Candidate within the Honor Guard (Royal Guard) |
 
 
 Administration:
-Administrative Officer within the Administrative Committee (Constitutional Democratic Party)
-Director within the Democratic Guard Academy (Constitutional Democratic Party)
+Administrative Officer within the Administrative Committee (Constitutional Democratic Party) | 
+Director within the Democratic Guard Academy (Constitutional Democratic Party) | 
 
 
 Training:
-Director within the Democratic Guard Academy (Constitutional Democratic Party)
-Ex Trial Instructor within the Department of Education (Ministry of Internal Affairs)
+Director within the Democratic Guard Academy (Constitutional Democratic Party) | 
+Ex Trial Instructor within the Department of Education (Ministry of Internal Affairs) | 
 
 
 Higher Ranking:
-Ex Officer of the Ministry of Admissions
-Director within the Democratic Guard Academy (Constitutional Democratic Party)
-Deputy Commander within the Democratic Guard (Constitutional Democratic Party)
-Advisory within the Democratic Guard (Consitutional Democratic Party)
+Ex Officer within the Ministry of Admissions | 
+Director within the Democratic Guard Academy (Constitutional Democratic Party) | 
+Deputy Commander within the Democratic Guard (Constitutional Democratic Party) | 
+Advisory within the Democratic Guard (Consitutional Democratic Party) | 
 
 
 Internal Affairs/Discipline/Investigation:
-Deputy Commander within the Democratic Guard (Consitutional Democratic Party)
+Deputy Commander within the Democratic Guard (Consitutional Democratic Party) | 
 
 
 Other relevant IRF experience:
-Ex Constable within the Ministry of Internal Affairs
-Ex Candidate of ISOC
+Ex Constable within the Ministry of Internal Affairs | 
+Ex Candidate of ISOC | 
